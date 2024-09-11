@@ -1,7 +1,7 @@
 # Descriptions for scab01
 
 ## Alchemy Supreme In City [Completed]
-[Alchemy Supreme In City | by Tian Kong](https://www.novelhall.com/alchemy-supreme-in-city-17592/)
+[novelhall](https://www.novelhall.com/alchemy-supreme-in-city-17592/)
 
 ## Fantasy: Get an Opportunity at the Beginning and Receive Tens of Billions of Subsidies [Completed]
 - [WuxiaV](https://www.wuxiab.com/novel/fantasy-get-an-opportunity-at-the-beginning-and-receive-tens-of-billions-of-subsidies.html)
