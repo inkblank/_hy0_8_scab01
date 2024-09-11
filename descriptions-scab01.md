@@ -1,5 +1,9 @@
 # Descriptions for scab01
 
+
+## Pill Sovereign Martial Emperor [Completed]
+[lnmtl](https://lnmtl.com/novel/pill-sovereign-martial-emperor)
+
 ## Alchemy Supreme In City [Completed]
 [novelhall](https://www.novelhall.com/alchemy-supreme-in-city-17592/)
 
