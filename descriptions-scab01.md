@@ -1,5 +1,7 @@
 # Descriptions for scab01
 
+## Super Gene Ⅱ: Evolution [Working]
+[novelbin](https://novelbin.org/novelbin/super-gene-evolution)
 
 ## Pill Sovereign Martial Emperor [Completed]
 [lnmtl](https://lnmtl.com/novel/pill-sovereign-martial-emperor)
