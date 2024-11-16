@@ -1,0 +1,21 @@
+Peerless Medicine God {
+
+Title {
+Peerless Medicine God | by Misty_Ellaine
+}
+
+Description {
+Author: Misty_Ellaine
+Genre: Eastern, Action, Harem, Romance
+Original Language: Chinese Novel
+Status: Completed
+
+Summary:
+He had once obtained a high levelled medical knowledge, martial arts and a Special Ability which allowed him to see through the other party's thoughts. With this, the Young Master Han was able to roam the society, shopping malls, medicine courts, and government officials.
+
+Check It.
+https://github.com/inkblank/_hy0_8_scab01/blob/main/_hy0/peerless-medicine-god.md
+}
+
+
+}
